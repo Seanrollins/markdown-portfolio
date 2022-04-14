@@ -1,1 +1,2 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+[52837048_504121426782302_8339589538250752_n](https://user-images.githubusercontent.com/31943107/163478192-419dafee-3870-4937-8b56-1d08253e333f.jpg)
+[Sean Playing Drums]
