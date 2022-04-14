@@ -1,1 +1,1 @@
-(https://github.com/Seanrollins)
+[Sean's Profile](https://github.com/Seanrollins)
